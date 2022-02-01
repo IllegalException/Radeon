@@ -1,5 +1,5 @@
 # Radeon-aka-FutureX-src
-2/1/22
+Go to releases and you can get src and jars!
 
 # For RyzeRadeonDev
-Your a salty, scamming, little pedo.
+Your a salty, scamming, little kid.
